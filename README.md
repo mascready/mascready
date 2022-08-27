@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mascready
 - 👀 I’m interested in Electronics
-- 🌱 I’m currently learning Farming (Yes... Really
+- 🌱 I’m currently learning Farming (Yes... Really)
 - 💞️ I’m looking to collaborate, maybe
 - 📫 How to reach me ...
 
